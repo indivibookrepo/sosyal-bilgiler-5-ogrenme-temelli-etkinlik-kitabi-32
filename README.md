@@ -1,0 +1,1 @@
+# sosyal-bilgiler-5-ogrenme-temelli-etkinlik-kitabi-32
